@@ -1,82 +1,28 @@
-"Nice to meet you, where you been?
-I could show you incredible things
-Magic, madness, heaven sin
-Saw you there and I thought
-Oh my God, look at that face
-You look like my next mistake
-Love's a game, want to play?
-New money, suit and tie
-I can read you like a magazine
-Ain't it funny, rumors, lie
-And I know you heard about me
-So hey, let's be friends
-I'm dying to see how this one ends
-Grab your passport and my hand
-I can make the bad guys good for a weekend
-So it's gonna be forever
-Or it's gonna go down in flames
-You can tell me when it's over
-If the high was worth the pain
-Got a long list of ex-lovers
-They'll tell you I'm insane
-'Cause you know I love the players
-And you love the game
-'Cause we're young and we're reckless
-We'll take this way too far
-It'll leave you breathless
-Or with a nasty scar
-Got a long list of ex-lovers
-They'll tell you I'm insane
-But I've got a blank space baby
-And I'll write your name
-Cherry lips, crystal skies
-I could show you incredible things
-Stolen kisses, pretty lies
-You're the king baby I'm your Queen
-Find out what you want
-Be that girl for a month
-Wait the worst is yet to come, oh no
-Screaming, crying, perfect storm
-I can make all the tables turn
-Rose gardens filled with thorns
-Keep you second guessing like
-"Oh my God, who is she?"
-I get drunk on jealousy
-But you'll come back each time you leave
-'Cause darling I'm a nightmare dressed like a daydream
-So it's gonna be forever
-Or it's gonna go down in flames
-You can tell me when it's over
-If the high was worth the pain
-Got a long list of ex-lovers
-They'll tell you I'm insane
-'Cause you know I love the players
-And you love the game
-'Cause we're young and we're reckless
-We'll take this way too far
-It'll leave you breathless
-Or with a nasty scar
-Got a long list of ex-lovers
-They'll tell you I'm insane (Insane)
-But I've got a blank space baby
-And I'll write your name
-Boys only want love if it's torture
-Don't say I didn't say I didn't warn ya
-Boys only want love if it's torture
-Don't say I didn't say I didn't warn ya
-So it's gonna be forever
-Or it's gonna go down in flames
-You can tell me when it's over
-If the high was worth the pain
-Got a long list of ex-lovers
-They'll tell you I'm insane
-'Cause you know I love the players
-And you love the game
-'Cause we're young and we're reckless
-We'll take this way too far
-It'll leave you breathless
-Or with a nasty scar
-Got a long list of ex-lovers
-They'll tell you I'm insane
-But I've got a blank space baby
-And I'll write your name"
+"Ay
+Fonsi
+DY
+Oh
+Oh no, oh no
+Oh yeah
+Diridiri, dirididi Daddy
+Go
+Yes, you know that I
+have been looking at you for a while I have to dance with you today (DY)
+I saw that your gaze was already calling
+me Show me the way I am going (Oh)
+You, you are the magnet and I am the metal
+I am getting closer and I'm putting together the plan
+just thinking about the pulse quickens (Oh yeah)
+Now, I am already liking it more than normal
+All my senses are asking for more
+This has to be taken without any rush
+Despacito
+want to breathe your neck slowly
+Let me tell you things to your ear
+for you to remember if you are not with me
+Despacito
+want to undress slowly kisses
+signed in the walls of your maze
+and make your body a whole manuscript (up, up, up)
+(Up, up)
+I want to see your hair dance ..."
