@@ -1,82 +1,52 @@
-"Nice to meet you, where you been?
-I could show you incredible things
-Magic, madness, heaven sin
-Saw you there and I thought
-Oh my God, look at that face
-You look like my next mistake
-Love's a game, want to play?
-New money, suit and tie
-I can read you like a magazine
-Ain't it funny, rumors, lie
-And I know you heard about me
-So hey, let's be friends
-I'm dying to see how this one ends
-Grab your passport and my hand
-I can make the bad guys good for a weekend
-So it's gonna be forever
-Or it's gonna go down in flames
-You can tell me when it's over
-If the high was worth the pain
-Got a long list of ex-lovers
-They'll tell you I'm insane
-'Cause you know I love the players
-And you love the game
-'Cause we're young and we're reckless
-We'll take this way too far
-It'll leave you breathless
-Or with a nasty scar
-Got a long list of ex-lovers
-They'll tell you I'm insane
-But I've got a blank space baby
-And I'll write your name
-Cherry lips, crystal skies
-I could show you incredible things
-Stolen kisses, pretty lies
-You're the king baby I'm your Queen
-Find out what you want
-Be that girl for a month
-Wait the worst is yet to come, oh no
-Screaming, crying, perfect storm
-I can make all the tables turn
-Rose gardens filled with thorns
-Keep you second guessing like
-"Oh my God, who is she?"
-I get drunk on jealousy
-But you'll come back each time you leave
-'Cause darling I'm a nightmare dressed like a daydream
-So it's gonna be forever
-Or it's gonna go down in flames
-You can tell me when it's over
-If the high was worth the pain
-Got a long list of ex-lovers
-They'll tell you I'm insane
-'Cause you know I love the players
-And you love the game
-'Cause we're young and we're reckless
-We'll take this way too far
-It'll leave you breathless
-Or with a nasty scar
-Got a long list of ex-lovers
-They'll tell you I'm insane (Insane)
-But I've got a blank space baby
-And I'll write your name
-Boys only want love if it's torture
-Don't say I didn't say I didn't warn ya
-Boys only want love if it's torture
-Don't say I didn't say I didn't warn ya
-So it's gonna be forever
-Or it's gonna go down in flames
-You can tell me when it's over
-If the high was worth the pain
-Got a long list of ex-lovers
-They'll tell you I'm insane
-'Cause you know I love the players
-And you love the game
-'Cause we're young and we're reckless
-We'll take this way too far
-It'll leave you breathless
-Or with a nasty scar
-Got a long list of ex-lovers
-They'll tell you I'm insane
-But I've got a blank space baby
-And I'll write your name"
+"I really wanna stop but I just got the taste for it
+I feel like I could fly with the boy on the moon
+So honey, hold my hand, you like making me wait for it
+I feel like I could die walking up to the room, oh yeah
+Late night watching television
+But how'd we get in this position
+It's way too soon, I know this isn't love
+But I need to tell you something
+I really, really, really, really, really, really like you
+And I want you, do you want me, do you want me too?
+I really, really, really, really, really, really like you
+And I want you, do you want me, do you want me too?
+Oh, did I say too much?
+I'm so in my head
+When we're outta touch (outta touch)
+I really, really, really, really, really, really like you
+And I want you, do you want me, do you want me too?
+It's like everything you say is a sweet revelation
+All I wanna do is get into your head
+Yeah, we could stay alone, you and me and this temptation
+Sipping on your lips, hanging on by a thread, baby
+Late night watching television
+But how'd we get in this position
+It's way too soon, I know this isn't love (no)
+But I need to tell you something
+I really, really, really, really, really, really like you
+And I want you, do you want me, do you want me too?
+I really, really, really, really, really, really like you
+And I want you, do you want me, do you want me too?
+Oh, did I say too much?
+I'm so in my head
+When we're outta touch (when we're outta touch)
+I really, really, really, really, really, really like you
+And I want you, do you want me, do you want me too?
+Who gave you eyes like that, said you could keep them?
+I dunno how to act or if I should be leavin'
+I'm running outta time, going outta my mind
+I need to tell you something, yeah, I need to tell you something
+Yeah
+I really, really, really, really, really, really like you
+And I want you, do you want me, do you want me too?
+I really, really, really, really, really, really like you
+And I want you, do you want me, do you want me too?
+Oh, did I say too much? (Did I say too much?)
+I'm so in my head (I'm so in my head)
+When we're outta touch (when we're outta touch)
+I really, really, really, really, really, really like you
+And I want you, do you want me, do you want me, too?
+I really, really, really, really, really, really like you
+And I want you, do you want me, do you want me too? (Yeah, I need to tell you something)
+I really, really, really, really, really, really like you
+And I want you, do you want me, do you want me too?"
